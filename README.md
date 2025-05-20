@@ -1,1 +1,1 @@
-to whoever reading this. Just open the exe file, enjoy :3
+This is a new generation method that no security has ever found. this is the new hack.
